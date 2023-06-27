@@ -1,2 +1,2 @@
 # Creepy-Website
-site temático de Halloween | Halloween E-commerce Website #portfolio
+site temático de Halloween | Halloween Website #portfolio
